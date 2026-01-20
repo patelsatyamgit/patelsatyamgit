@@ -4,7 +4,7 @@
 
 - 📫 How to reach me **patelsatyam1097@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1gagAShBBZujptnXhGEj386ml9wUIkQh7/view?usp=sharing](https://drive.google.com/file/d/1gagAShBBZujptnXhGEj386ml9wUIkQh7/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/16VDVzcPvRgItKl4YT2Cdq0BYzYfVlnsQ/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
